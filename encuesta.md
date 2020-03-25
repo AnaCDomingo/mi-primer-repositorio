@@ -1,0 +1,1 @@
+# Mis expectativas de esta materia son poder aprender un lenguaje diferente (Phyton) y mejorar mis prácticas como programadora, para mi trabajo y mis proyectos personales.
